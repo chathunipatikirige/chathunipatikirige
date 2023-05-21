@@ -6,8 +6,8 @@
 
 **A result driven Engineering undergraduate with problem solving skills and ability to perform well in a team. Great communicator with leadership skills to handle academic and non academic tasks efficiently.**
 
-                                       “It is man that ends, but his works can endure.”
-                                                  - The Watchmakers Apprentice
+                                       “Your value doesn't decrease based on someone's inability to see your worth.”
+                                                                      - Unknown
 
 ---
 
