@@ -20,7 +20,7 @@
 - 🤗 Passionate about anything tech
 - 👍 Like music and good art
 - 🎓 Studying Electronics and Telecommunication Engineering at SLTC
-- 🧭 Co-creator of Project Almanac
+- 🧭 Co-creator of [Project Almanac](http://www.projectalmanac.org/)
 - 📧 How to reach me: [chathunipatikirige@gmail.com](mailto:chathunipatikirige@gmail.com)
 - 🌎 [Find me on the internet](https://chathunipatikirige.github.io/)
 
